@@ -1,0 +1,93 @@
+
+
+
+## 한라산 표고버섯농장 체험
+### 한라산 버섯연구소 900고지의 최고의 자연버섯
+
+한라산의 향기를 머금은 자연 표고버섯을 바로 따서 먹어보신 적이 있나요?
+한입 베어 물면 입안에서 한 시간을 머무는 향긋한 표고버섯의 맛이 잊히지 않을 겁니다.
+
+지금까지 마트에서 맛보셨던 중국산 표고나 비닐하우스에서 배지 재배로 키워낸 표고는 잊어버리세요.
+한라산 숲 속에서 햇살 듬뿍 받으며 자라난 대한민국 최고 수준의 자연버섯입니다. 
+
+지금껏 알지 못했던 제주를 발견해가는 디스커버 제주와 함께 
+한라산 자연 표고버섯농장 체험을 떠나볼까요? 
+
+![버섯](https://s5.postimg.org/nsh8gtt87/P2070506.jpg#center)
+
+
+
+![버섯](https://s5.postimg.org/jzoj9lyyf/P3290907.jpg#center)
+![버섯](https://s5.postimg.org/at68mbtpz/P3290909.jpg#center)
+
+해발 900m 한라산 중턱 영실 입구에 자리 잡은 60만 평의 광대한 '한라산 버섯연구소'는 1953년부터
+3대째 대를 이어 표고농사와 각종 약용버섯 연구를 하고 있는 매우 특별한 버섯농장입니다. 
+
+
+
+
+![버섯](https://s5.postimg.org/y3kei065z/P3290905.jpg#center)
+표고버섯이 봄의 향기를 머금으며 피어오를 4월을 기다리고 있습니다.
+
+
+
+
+![버섯](http://postfiles7.naver.net/MjAxNzAzMjJfMjY1/MDAxNDkwMTcyMzI3MTMx.wrtr-Ut8-PIMQMEYYUtBIrQtK7N7Q9EKIgb-HMBnWiUg.EeT0xfVRWvm9NaV1vOwp_GRcuvqujuo6bOBJdMt5rt4g.JPEG.discover-jeju/1462078359531.jpeg?type=w773#center)
+
+
+4월이 되면 이렇게 활짝 피어난답니다.
+
+평소 버섯을 싫어하던 아이들도 자기가 직접 딴 버섯은 신기해하며 잘 먹어요.
+
+![버섯](https://s5.postimg.org/eygoovak7/20161023_111101.jpg#center)
+15분~30분 코스의 버섯농장 길을 따라 산책을 즐기세요. 
+다양한 한라산의 식생과 야생버섯을 만나실 수 있습니다.  
+
+![버섯](http://postfiles2.naver.net/MjAxNzAzMjJfMTAx/MDAxNDkwMTcyNDU5MDk2.NgwrdDhah1dX9Ybtjlby3n1PQybajlkLm32A6t35xuMg.J95o7X1E6fow45M4X7T7-Hj6Y7VvpXS54CPL96vtldMg.JPEG.discover-jeju/1462078363489.jpeg?type=w773#center)
+
+한라산 자연 표고버섯체험은 4월부터 5월까지 그리고 가을철 추석 무렵부터 11월까지 
+1년에 약 4달여에 불과합니다. 나머지 기간에는 햇빛에 자연 건조해서 비타민D가 풍부해진
+건조 버섯을 만나실 수 있습니다.
+
+
+### 가격
+- 입장료: 소인(초등학생) 1,000원 / 성인 2,000원  / 초등학생 이하 무료
+### 포함 사항
+- 버섯체험, 버섯차제공
+### 표고버섯 구매
+- 생 표고 1kg 박스  20,000원 (시세에 따라 다소 변동) 
+추후 표고버섯 구입을 원하시면 디스커버 제주 장터에서 구입 가능합니다.(개발중) 
+
+
+### 집결지
+제주도 서귀포시 1100로 1187 (한라산 버섯 연구소) / 
+
+<a href="http://map.daum.net/?urlX=373590&urlY=-44442&urlLevel=4&map_type=TYPE_MAP&map_hybrid=false&SHOWMARK=true" target="_blank"><span style="background:#000;position:absolute;width:557px;opacity:.7;filter:alpha(opacity=70);color:#fff;overflow:hidden;font:12px/1.5 Dotum, '돋움', sans-serif;text-decoration:none;padding:7px 0px 0px 10px; height: 24px;">지도를 클릭하시면 위치정보를 확인하실 수 있습니다.</span><img width="565" height="308" src="http://map2.daum.net/map/mapservice?MX=373590&MY=-44442&SCALE=5&IW=565&IH=308&COORDSTM=WCONGNAMUL" style="border:1px solid #ccc"></a>
+
+
+### 버섯농장체험 취소의 경우
+* 날씨 상황이 위험하다고 판단될 경우는 버섯농장 체험을 취소할 수 있습니다.
+
+
+### 신청 시 유의사항
+
+- 당일 전체 여행에 대한 보험은 불포함 내용이오니 가입을 원할 시 개별 여행자 보험 가입 후 참가 부탁드립니다.
+- 일기예보 상 우천/강풍이 없더라도 한라산의 상황에 따라 일기예보와 달리 취소될 수 있습니다.
+
+### 환불 규정
+[환불규정]
+
+여행상품에 대한 환불/취소 규정은 다음과 같습니다.
+
+회사 사이트를 통해 참여 신청을 받는 여행상품의 경우, 회원은 여행 개시일 전 이 여행 계약을 해제할 수 있습니다. 회원의 여행상품 결제가 이루어진 후 여행 개시일 이전에 계약을 해제하는 경우, 해제 통보 시점에 관한 다음 각 호의 기준에 따라 회사가 입은 손해를 배상합니다.
+
+* 계약금 지급일부터 모객 신청 마감일 4일 전까지 통보시: 계약금 환급
+* 모객 신청 마감일 3일 전 통보시: 부가 서비스/부가 물품 구매 비용을 제외한 여행 상품 가격의 20% 배상
+* 모객 신청 마감일 2일 전 통보시: 부가 서비스/부가 물품 구매 비용을 제외한 여행 상품 가격의 40% 배상
+* 모객 신청 마감일 1일 전 통보시: 부가 서비스/부가 물품 구매 비용을 제외한 여행 상품 가격의 50% 배상
+* 모객 신청 마감일 및 그 이후 통보시 또는 여행 당일 취소나 불참 시에는 환불 불가
+* 신청 마감 7일 이전 통보 시: 계약금 환급 
+* 신청 마감 6일 ~ 4일 이전 통보 시: 결제 금액의 20% 배상 후 환불 
+* 신청 마감 3일 ~ 2일 이전 통보 시: 결제 금액의 40% 배상 후 환불 
+* 신청 마감 1일 이전 통보 시: 결제 금액의 50% 배상 후 환불 
+* 신청 마감 시간 이후나 당일 불참 시에는 환불 불가 
