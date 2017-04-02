@@ -2,7 +2,7 @@
 
 
 ## 한라산 표고버섯농장 체험
-### 한라산 버섯연구소 900고지의 최고의 자연버섯
+### 한라산 900고지의 최고의 자연버섯
 
 한라산의 향기를 머금은 자연 표고버섯을 바로 따서 먹어보신 적이 있나요?
 한입 베어 물면 입안에서 한 시간을 머무는 향긋한 표고버섯의 맛이 잊히지 않을 겁니다.
@@ -18,8 +18,8 @@
 
 
 ![버섯](https://s5.postimg.org/jzoj9lyyf/P3290907.jpg#center)
-![버섯](https://s5.postimg.org/at68mbtpz/P3290909.jpg#center)
 
+![버섯](https://s5.postimg.org/cxwmatc1j/P3290919.jpg#center)
 해발 900m 한라산 중턱 영실 입구에 자리 잡은 60만 평의 광대한 '한라산 버섯연구소'는 1953년부터
 3대째 대를 이어 표고농사와 각종 약용버섯 연구를 하고 있는 매우 특별한 버섯농장입니다. 
 
@@ -39,11 +39,13 @@
 
 평소 버섯을 싫어하던 아이들도 자기가 직접 딴 버섯은 신기해하며 잘 먹어요.
 
-![버섯](https://s5.postimg.org/eygoovak7/20161023_111101.jpg#center)
+![버섯](https://s5.postimg.org/rrb9vkjsn/20161023_111101.jpg#center)
 15분~30분 코스의 버섯농장 길을 따라 산책을 즐기세요. 
 다양한 한라산의 식생과 야생버섯을 만나실 수 있습니다.  
 
 ![버섯](http://postfiles2.naver.net/MjAxNzAzMjJfMTAx/MDAxNDkwMTcyNDU5MDk2.NgwrdDhah1dX9Ybtjlby3n1PQybajlkLm32A6t35xuMg.J95o7X1E6fow45M4X7T7-Hj6Y7VvpXS54CPL96vtldMg.JPEG.discover-jeju/1462078363489.jpeg?type=w773#center)
+
+![버섯](https://s5.postimg.org/6mkxnmd6f/1462078355901.jpg#center)
 
 한라산 자연 표고버섯체험은 4월부터 5월까지 그리고 가을철 추석 무렵부터 11월까지 
 1년에 약 4달여에 불과합니다. 나머지 기간에는 햇빛에 자연 건조해서 비타민D가 풍부해진
