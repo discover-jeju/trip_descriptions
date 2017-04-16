@@ -28,7 +28,7 @@
 
 표고버섯이 봄의 향기를 머금으며 피어오를 4월을 기다리고 있습니다.
 
-![버섯](https://s5.postimg.org/nsh8gtt87/P2070506.jpg#center)
+
 
 ![버섯](https://s5.postimg.org/twj409xrr/20170414_133117.jpg#center)
 
