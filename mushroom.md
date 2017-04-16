@@ -62,7 +62,7 @@
 [![표고버섯](https://img.youtube.com/vi/jhdHWZQY9P0/0.jpg)](https://www.youtube.com/watch?v=jhdHWZQY9P0)
 
 ### 표고버섯의 효능
-표고버섯은 예부터 임금님께 진상되기 한 귀한 식재료였다. 표고버섯에는 칼슘, 인, 철, 칼륨, B1, B2, 나이아신과 같은 미네랄과 비타민이 풍부하며 필수아미노산이 고르게 분포되어 있다.
+표고버섯은 예부터 임금님께 진상된 귀한 식재료였다. 표고버섯에는 칼슘, 인, 철, 칼륨, B1, B2, 나이아신과 같은 미네랄과 비타민이 풍부하며 필수아미노산이 고르게 분포되어 있다.
 
 표고버섯의 특유의 향기로운 풍미는 구아닐산, 글루타민산, 렌티난 등과 유리 아미노산류, 당류, 당알코올류 등 여러 가지가 복합적으로 작용하여 내는데, 이것은 혈액 속 콜레스테롤 수치를 떨어뜨린다. 
 
@@ -106,7 +106,7 @@
 
 
 ### 집결지
-제주도 서귀포시 1100로 1187 (한라산 버섯 연구소) / 
+제주도 서귀포시 1100로 1187 (한라산 버섯 연구소)  
 
 <a href="http://map.daum.net/?urlX=373590&urlY=-44442&urlLevel=4&map_type=TYPE_MAP&map_hybrid=false&SHOWMARK=true" target="_blank"><span style="background:#000;position:absolute;width:557px;opacity:.7;filter:alpha(opacity=70);color:#fff;overflow:hidden;font:12px/1.5 Dotum, '돋움', sans-serif;text-decoration:none;padding:7px 0px 0px 10px; height: 24px;">지도를 클릭하시면 위치정보를 확인하실 수 있습니다.</span><img width="565" height="308" src="http://map2.daum.net/map/mapservice?MX=373590&MY=-44442&SCALE=5&IW=565&IH=308&COORDSTM=WCONGNAMUL" style="border:1px solid #ccc"></a>
 
