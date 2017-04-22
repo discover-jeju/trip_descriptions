@@ -2,7 +2,7 @@
 
 
 
-## "“Encounter Wild Dolphins with Jeju Fishermen”"
+## Encounter Wild Dolphins with Jeju Fishermen
 ### Encounter Dolphins at Jeju Island
 
 
