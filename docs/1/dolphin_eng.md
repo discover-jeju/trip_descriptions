@@ -1,7 +1,3 @@
-
-
-
-
 ## Encounter Wild Dolphins with Jeju Fishermen
 ### Encounter Dolphins at Jeju Island
 
@@ -25,17 +21,15 @@ Encounter wild dolphins in the company of Jeju fishermen who know the waters aro
 
 [![discoverjeju dolphin](https://img.youtube.com/vi/sBhUxjRW4NU/0.jpg)](https://www.youtube.com/watch?v=sBhUxjRW4NU)
 
-![dol](https://s5.postimg.org/igktg1xxj/IMG_7577.jpg#center)
+![dol](https://s5.postimg.org/wvnpyiuk7/IMG_0316.jpg#center)
 
 ![dol](https://s5.postimg.org/8d0oxn6kn/IMG_7701.jpg#center)
 
-![dol](https://s5.postimg.org/bnkgjs747/IMG_7691.jpg#center)
-
 ![dol](https://s5.postimg.org/opaqndkw7/dol12.jpg#center)
 
-![dol](https://scontent-icn1-1.xx.fbcdn.net/v/t31.0-8/14691418_1296576030376071_2961464485607566121_o.jpg?oh=b5b00728a8bc780b937a63fd31c91961&oe=59467FC1#center)
+![dol](https://s5.postimg.org/hcqa1em9j/IMG_0676.jpg?1#center)
 
-![dol](https://scontent-icn1-1.xx.fbcdn.net/v/t1.0-9/15032653_1328024273897913_1278026401314677109_n.jpg?oh=21f8b73c87f819fae3f8d95854815e10&oe=59564EA6#center)
+![dol](https://s5.postimg.org/r67he7odz/IMG_0616.jpg#center)
 
 
 About 120 Indo-Pacific bottlenose dolphins live in the coastal waters of Jeju Island.
@@ -48,7 +42,7 @@ When haenyeo (female divers) find dolphins while they are diving for seafood, th
 
 ![dol](https://s5.postimg.org/8tcpslfk7/dol11.jpg#center)
 
-![dol](https://scontent-icn1-1.xx.fbcdn.net/v/t31.0-8/14711676_1296575537042787_3732068779847610094_o.jpg?oh=c016f99fc439821ca06925e77986978c&oe=594A65AE#center)
+![dol](https://s5.postimg.org/dnk00x1yv/IMG_1136_-.jpg#center)
 
 
 Discover Jeju has opted to use Jeju fishermen’s ships as dolphin exploration vessels, rather than luxurious yachts or cruise ships.
@@ -86,7 +80,7 @@ Thus, our wild dolphin discovery tour with native Jeju fishermen is not an expen
 ### Precautions
 
 
-![dol](https://scontent-icn1-1.xx.fbcdn.net/v/t31.0-8/15235870_1347474488619558_5812683622184182937_o.png?oh=3b14d822a6732fd8926e762ab788a037&oe=590951C9#center)
+![dol](https://s5.postimg.org/rdzpogoqf/dol_cution.png#center)
 
 
 * Code of Conduct
