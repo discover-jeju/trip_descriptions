@@ -6,7 +6,7 @@
 ### Encounter Dolphins at Jeju Island
 
 
-[![디스커버 제주 돌고래 탐사대 동영상](https://img.youtube.com/vi/EyehYqUnVz4/0.jpg)](https://www.youtube.com/watch?v=EyehYqUnVz4)
+[![discoverjeju dolphin](https://img.youtube.com/vi/EyehYqUnVz4/0.jpg)](https://www.youtube.com/watch?v=EyehYqUnVz4)
 
 
 
@@ -23,7 +23,7 @@ Encounter wild dolphins in the company of Jeju fishermen who know the waters aro
 
 
 
-[![디스커버 제주 돌고래 탐사대 동영상](https://img.youtube.com/vi/sBhUxjRW4NU/0.jpg)](https://www.youtube.com/watch?v=sBhUxjRW4NU)
+[![discoverjeju dolphin](https://img.youtube.com/vi/sBhUxjRW4NU/0.jpg)](https://www.youtube.com/watch?v=sBhUxjRW4NU)
 
 ![dol](https://s5.postimg.org/igktg1xxj/IMG_7577.jpg#center)
 
@@ -44,7 +44,7 @@ Although dolphins are an amazing sight for most mainland people, the inhabitants
 
 When haenyeo (female divers) find dolphins while they are diving for seafood, they shout out, “Baeallo, baeallo”, meaning ‘go underneath the boat’ in Jeju dialect, in the hope that the dolphins will pass beneath the boat because their mischievous behavior can be dangerous. 
 
-![헤엄치는춘삼이와새끼돌고래](https://s5.postimg.org/os3t1p3bb/image.jpg#center)
+![baby dolphin](https://s5.postimg.org/os3t1p3bb/image.jpg#center)
 
 ![dol](https://s5.postimg.org/8tcpslfk7/dol11.jpg#center)
 
@@ -66,7 +66,7 @@ Thus, our wild dolphin discovery tour with native Jeju fishermen is not an expen
 
 
 
-[![제주어민과 함께하는 야생돌고래 탐사 인터뷰](https://img.youtube.com/vi/urmOEHdnf-w/0.jpg)](https://www.youtube.com/watch?v=urmOEHdnf-w)
+[![discoverjeju dolphin interview](https://img.youtube.com/vi/urmOEHdnf-w/0.jpg)](https://www.youtube.com/watch?v=urmOEHdnf-w)
 
 (Discover Jeju’s “Wild Dolphins Exploration Tour with Jeju Fishermen” Experience Essay)
 
