@@ -65,7 +65,7 @@ Thus, our wild dolphin discovery tour with native Jeju fishermen is not an expen
 (Discover Jeju’s “Wild Dolphins Exploration Tour with Jeju Fishermen” Experience Essay)
 
 ### Contact
-* Reservation First
+* Reservation:Call First for foreginer
 * +82-10-9663-0801, 050-5558-3838
 
 
