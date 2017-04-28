@@ -1,6 +1,7 @@
 ## Wild Dolphins watching with Jeju Fishermen
 
 ### Wild Dolphins watching at Jeju Island
+#### Phenomenal exploration success rate over 90%
 
 
 [![discoverjeju dolphin](https://img.youtube.com/vi/EyehYqUnVz4/0.jpg)](https://www.youtube.com/watch?v=EyehYqUnVz4)
