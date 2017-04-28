@@ -1,5 +1,6 @@
-## Encounter Wild Dolphins with Jeju Fishermen
-### Encounter Dolphins at Jeju Island
+## Wild Dolphins watching with Jeju Fishermen
+
+### Wild Dolphins watching at Jeju Island
 
 
 [![discoverjeju dolphin](https://img.youtube.com/vi/EyehYqUnVz4/0.jpg)](https://www.youtube.com/watch?v=EyehYqUnVz4)
@@ -15,7 +16,7 @@ tourists can enjoy an amazing encounter with a group of wild dolphins on Jeju’
 
 
  
-Encounter wild dolphins in the company of Jeju fishermen who know the waters around Jeju better than anyone.
+Wild Dolphins watching in the company of Jeju fishermen who know the waters around Jeju better than anyone.
 
 
 
@@ -34,9 +35,9 @@ Encounter wild dolphins in the company of Jeju fishermen who know the waters aro
 
 About 120 Indo-Pacific bottlenose dolphins live in the coastal waters of Jeju Island.
 
-Although dolphins are an amazing sight for most mainland people, the inhabitants of Jeju’s coastal areas are familiar with dolphins, as they often encounter them while swimming or fishing on a boat. 
+Although dolphins are an amazing sight for most mainland people, the inhabitants of Jeju’s coastal areas are familiar with dolphins, as they often appear them while swimming or fishing on a boat. 
 
-When haenyeo (female divers) find dolphins while they are diving for seafood, they shout out, “Baeallo, baeallo”, meaning ‘go underneath the boat’ in Jeju dialect, in the hope that the dolphins will pass beneath the boat because their mischievous behavior can be dangerous. 
+When haenyeo (female divers) find dolphins while they are diving for seafood, they shout out, “Baeallo, baeallo”, meaning ‘go underneath the people’ in Jeju dialect, in the hope that the dolphins will pass beneath the peoples because their mischievous behavior can be dangerous. 
 
 ![baby dolphin](https://s5.postimg.org/os3t1p3bb/image.jpg#center)
 
@@ -65,7 +66,7 @@ Thus, our wild dolphin discovery tour with native Jeju fishermen is not an expen
 (Discover Jeju’s “Wild Dolphins Exploration Tour with Jeju Fishermen” Experience Essay)
 
 ### Contact
-* Reservation:Call First for foreginer
+* Reservation First
 * +82-10-9663-0801, 050-5558-3838
 
 
