@@ -1,190 +1,112 @@
 
+## "아무르타이거 서프보드와 함께 신나는 서핑 라이프"
+### 서핑보드제작 세미나, 서핑 그리고, 함께하는 서핑 이야기와 파티
 
 
 
-## "제주어민과 함께하는 야생 돌고래 탐사"
-### 제주도 돌고래를 만나다
+**지금껏 알지 못했던 제주를 발견하는 
+'디스커버 제주'가 서핑보드 제작의 메카 아무르타이거와 손잡고 진행하는 서핑 라이프** 
+
+요즘 대중들에게 점점 가까이 다가가고 있는 서핑.
 
 
-[![디스커버 제주 돌고래 탐사대 동영상](https://img.youtube.com/vi/EyehYqUnVz4/0.jpg)](https://www.youtube.com/watch?v=EyehYqUnVz4)
+1. 세계적 규모의 서프보드 팩토리에서 전 제작과정을 볼 수 있는 공장견학과 직접 **핸드메이드 보드를 만드는 쉐이퍼와의 시간!**
 
 
+*  서프보드에 관한 궁금증을 해소하고 커스텀 보드에 관한 상담을 할 수 있는 시간이 마련되어 있습니다. 
 
-지금껏 알지 못했던 제주를 발견하는 
-'디스커버 제주'가 기획한 첫번째 프로그램 
+3. 국내 최고의 서핑 포인트가 즐비한 제주에서 **전문강사들과 함께 서핑스쿨에서 서핑을 배우고 체험하는 프로그램.**
+
+- 서핑을 처음 접하시는 분들에게는 즐거운 체험의 기회
+- 이미 서핑에 입문하신 분들께는 레벨업의 기회, 포인트 레슨
+
+4. 저녁때는 함께한 일행들과의 친목을 위한 **바베큐 타임과 서퍼스나잇**도 준비되어 있습니다.
+
+- 서퍼들과의 진솔하고 재밌는 세상사는 이야기
+
+서핑은 자신에게 맞는 포인트를 잘 선택 한다면 남녀노소 누구나 재밌게 즐길 수 있는 스포츠 입니다.
+
+
+한번쯤 도전해 싶지만 기회가 없으신 분들 혼자서는 용기가 없어서 망설이시는 분들 지금 한번 도전해 보세요!!!.
+
  
-멀리 외국까지 가지 않아도 
-비싼 요트를 타지 않아도  
-디스커버 제주가 제주 전역을 탐사하여 찾아낸 
-관측 확률이 가장 높은 지역인 
-제주 남서부 연안에서 야생 돌고래떼를 만나는 
-놀라운 경험을 할 수 있습니다. 
-
-
-
-
  
-제주 바다를 가장 잘 아는 제주어부와 함께 
-야생 돌고래 탐사를 떠납니다!
+### 아무르타이거 소개
+아무르타이거서프보드는 국내 서프보드 쉐이핑 업계를 이끌고 있는 선두업체로서 현재 본사가 제주도에 위치하고 있으며 비교적 서핑의 역사와 수준이 높지 않은 국내업계 사정에도 많은 외국 쉐이퍼들과의 교류로 기술적 부분 뿐만 아니라 다양한 분야의 디자이너와의 콜라보 작업으로 디자인 또한 우수한 서핑보드를 생산해 내고 있으며 관련 기술자 양성을 위해 서프보드 제작 아카데미를 운영중에 있습니다.
+
+[![surf](https://img.youtube.com/vi/R-zxKRc-JMg/0.jpg)](https://www.youtube.com/watch?v=R-zxKRc-JMg)
 
 
-[![디스커버 제주 돌고래 탐사대 동영상](https://img.youtube.com/vi/sBhUxjRW4NU/0.jpg)](https://www.youtube.com/watch?v=sBhUxjRW4NU)
+![surf](https://s5.postimg.org/6sc9bzlth/20160114_144146.jpg#center)
 
-![dol](https://s5.postimg.org/wvnpyiuk7/IMG_0316.jpg#center)
+![surf](https://s5.postimg.org/ffg9yikvr/Kakao_Talk_20170504_152549749.jpg#center)
 
-![dol](https://s5.postimg.org/8d0oxn6kn/IMG_7701.jpg#center)
+![surf](https://s5.postimg.org/6mzbatzqv/SFG_9051.jpg#center)
 
-![dol](https://s5.postimg.org/opaqndkw7/dol12.jpg#center)
+![surf](https://s5.postimg.org/stxy8agxj/IMG_8902.jpg#center)
 
-![dol](https://s5.postimg.org/hcqa1em9j/IMG_0676.jpg?1#center)
-
-![dol](https://s5.postimg.org/r67he7odz/IMG_0616.jpg#center)
+![surf](https://s5.postimg.org/bn5ya9k53/Kakao_Talk_20160513_093337884.jpg#center)
 
 
+### 서핑체험 with Vigor
+VIGOR 서핑스쿨은 입문자에게 가장 적합한 파도가 항상 들어오고, 아름다운 자연경관을 자랑하는 사계리해안에 위치하고 있습니다. 오직 VIGOR 강습생만 이용할 수 있는 서핑포인트를 갖추고 있어 서핑에 방해, 위험요소 없이 강습을 받을 수 있습니다. 또한 쾌적하고 안락한 게스트하우스와 펍이 준비되어 있습니다.
 
-제주도 연안에는 남방큰돌고래(Indo-Pacific bottlenose dolphin)가 120여마리정도 살고 있습니다. 
- 
-육지사람들에게는 신기하게 생각되지만 제주도 해안가 주민들에게는 
-어릴때부터 바다에서 수영을 하거나 배 타고 조업중에 만나던 오래된 친구들이랍니다.   
- 
-해녀삼춘들이 물질하다 돌고래를 만나면 혹시라도 돌고래의 장난이 위험할 수도 있기에 
-"배알로 배알로" 하며 배아래로 지나가라고 소리를 내기도 한답니다.
- 
-제주 앞바다에서 잡혀 좁은 수족관에서 돌고래쇼를 하다가 풀려난
-제돌이,춘삼이,삼팔이,태산이,복순이는 많은 사람들의 관심과 도움으로
-지금 제주 바다에서 새끼도 낳고 잘 살고 있다는 반가운 소식도 들립니다.
+[![surf](https://img.youtube.com/vi/IiuAntaLzLQ/0.jpg)](https://www.youtube.com/watch?v=IiuAntaLzLQ)
+http://vigorsurf.com/
 
-![baby dolphin](https://s5.postimg.org/os3t1p3bb/image.jpg#center)
+![surf](https://s5.postimg.org/3lmb63qrb/DSC00259.jpg#center)
 
-![dol](https://s5.postimg.org/8tcpslfk7/dol11.jpg#center)
+![surf](https://s5.postimg.org/8cm6o4jlj/DSC05986.jpg#center)
 
-![dol](https://s5.postimg.org/dnk00x1yv/IMG_1136_-.jpg#center)
+![surf](https://s5.postimg.org/b997oepfb/DSC07191.jpg#center)
+
+![surf](https://s5.postimg.org/68p934htj/DSC03051.jpg#center)
 
 
 
-디스커버 제주는 화려한 요트나 유람선을 활용하지 않고 제주 어민들의 어선을 돌고래 탐사선으로 선정했습니다.
-
-개체수가 적어 멸종위기종으로 보호대상 해양생물로 지정되어 있는 돌고래지만어민들 입장에서는 조업중에 돌고래가 나타나면 물고기를 쫒아내기도 하고 그물에 걸려 어업 손실을 보는 경우도 있기 때문에 돌고래가 반갑지만은 않은 존재랍니다.
-
-하지만, 돌고래가 관광수익이 된다면 어민들이 앞장서서 돌고래 보호에 앞장서지 않을까요?
-
-관광객 입장에서는 비싼 요트투어보다 토박이 제주 어부와 함께 부담없는 가격으로 야생 돌고래 탐사에 나설 수 있으니 상생할 수 있는 관광상품이 된답니다.
-
-![dol](https://s5.postimg.org/cxi9yu0w7/IMG_7644.jpg#center)
-
-![dol](https://s5.postimg.org/kty5tbmyv/dol10.jpg#center)
-
-![dol](https://s5.postimg.org/vfi15btaf/dol09.jpg#center)
-
-
-
-
-[![제주어민과 함께하는 야생돌고래 탐사 인터뷰](https://img.youtube.com/vi/urmOEHdnf-w/0.jpg)](https://www.youtube.com/watch?v=urmOEHdnf-w)
-
-(디스커버제주 "제주 어민과 함께하는 야생돌고래 탐사" 체험소감)
-
-
-
-
-
-
-### 탐사 스케쥴
+### 체험 스케쥴
 1. 집결및 인원 점검
-1. 선장님의 재밌는 돌고래 이야기와 주의사항 숙지
-1. 구명조끼 착용 후 승선
-1. 돌고래 출몰 지역으로 이동
-1. 돌고래 탐사
-1. 귀항
-
-
-### 돌고래 탐사시 주의 사항
-
-
-![dol](https://s5.postimg.org/rdzpogoqf/dol_cution.png#center)
+1. 아무르타이거 류창수대표의 서핑보드제작 세미나
+1. 서핑체험 (Vigor, 류창수대표)
+1. 서퍼나잇 (바베큐파티및 서퍼들과의 시간)
 
 
 
+### 주의사항
 
-* 접근
-  - 돌고래 반경 50m 이하로 접근하지 않는다. 
-  - 돌고래 반경 150m 이하에서는 접근과 관찰에 주의하고, 속도를 줄인다.
-* 행동 수칙
-  - 돌고래를 만지거나 먹이를 주지 않는다. 
-  - 돌고래 주변에서는 갑작스러운 소음이나 큰소리를 내지 않는다.
 
-* 선박 운행
-  - 돌고래의 진행 방향 앞에서 대기하지 않는다.
-  - 돌고래의 뒤쪽으로 쫓아가지 않는다.
-  - 돌고래에게 접근할 때는 돌고래의 정면과 후면을 피하고 옆쪽에서부터 천천히 접근한다.
-  - 돌고래 주변에서는 선박의 속도를 줄이고 갑작스러운 방향전환을 하지 않는다. 
-  - 어미와 새끼 돌고래가 같이 있을 경우 주의한다.
-  - 고무보트를 포함하여 여러 대의 선박이 한 번에 출항하는 경우 
-    돌고래를 선박으로 둘러싸거나 해변과 선박 사이에 돌고래를 놓지 않는다. 
-  - 한번에 3대 이상의 선박이 돌고래에게 접근하지 않는다. 
 
-돌고래 탐사시 위와 같은 주의사항을 잘 지켜서 
-**멸종 위기종으로 보호대상 해양생물인 돌고래**를 보호하는 문화를 만드는데 모두 동참해 주시기를 바랍니다.
-
-주의사항은 호주, 미국, 세계야생동물보호기금에서 제안하는 준수사항을 따르고 있습니다.
-디스커버제주는 돌고래보호에 앞장섭니다.
-
-### 탐사 취소의 경우
-**탐사 날짜는 기상 및 바다 상황에 따라 일정이 변경될 수 있으니 반드시 전화 확인 바랍니다.**
-
-* **날씨나 어선의 바다 항해에 위험하다고 판단될 경우는 돌고래 탐사를 취소할 수 있습니다.**
+### 체험 취소의 경우
+* **서핑 체험 날짜는 기상 및 바다 상황에 따라 일정이 변경될 수 있습니다.**
 * **인원이 미달될 경우 부득이하게 시간, 날짜 변경이 이루어질수 있습니다.**
 
-### 투어 정보
-주소: 제주도 서귀포시 동일리 포구
+### 체험 정보
+주소: 제주도 서귀포시 대정읍 보성리 1824 **아무르타이거서프보드**
 
-최소인원: 6명
+최소인원: 8명
 
-최대인원: 11명
+최대인원: 15명
 
-날짜: 신청 후 바다및 어선 상황에 따라 스케쥴 조정
+날짜: 신청 후 바다및 기상 상황에 따라 스케쥴 조정
 
-체험시간: 최대 1시간
+체험시간: 1박2일
 
 ### 포함 사항
-- 선장님의 친절한 안내
-- 구명 조끼
+- 서핑보드제작 강의
+- 서핑보드와 서핑슈트 대여
+- 게스트하우스 숙박
+- 바베큐파티와 서퍼들과의 소통의 시간
 
 ### 주의 사항
-- 예약 시간 10분전까지 오세요.
-- 배멀미가 심한 사람은 배멀미 약 복용(멀미 패치 포함)
-- 어린이는 1인 1보호자 하에 반드시 주의 깊은 보호가 필요합니다.
-- 화장실이 멀리 있으니, 미리 꼭해결하시고 오시길 바랍니다.
+-
 
 ### 집결지
+제주도 서귀포시 대정읍 보성리 1824 **아무르타이거서프보드**
 
 
+<div style="font:normal normal 400 12px/normal dotum, sans-serif; width:600px; height:333px; color:#333; position:relative"><div style="height: 300px;"><a target="_blank" href="http://map.daum.net/?urlX=329869.0&amp;urlY=-67401.0&amp;name=%EC%A0%9C%EC%A3%BC%ED%8A%B9%EB%B3%84%EC%9E%90%EC%B9%98%EB%8F%84%20%EC%84%9C%EA%B7%80%ED%8F%AC%EC%8B%9C%20%EB%8C%80%EC%A0%95%EC%9D%8D%20%EB%B3%B4%EC%84%B1%EB%A6%AC%201824&amp;map_type=TYPE_MAP&amp;from=roughmap"><img class="map" src="http://t1.daumcdn.net/roughmap/imgmap/4f346f866f61ff9324112f424ab7093c64d23e85dbed70c48a1a74c599458e50" width="598px" height="298px" style="border:1px solid #ccc;"></a></div><div><span style="border-left:1px solid #dbdbdb;border-right:1px solid #dbdbdb;border-bottom:1px solid #dbdbdb;box-sizing:border-box;box-sizing:border-box;background-color:#f9f9f9;position:absolute;left:0px;top:300px;width:600px;height:33px"></span><span style="position:absolute;left:12px;top:307px"><img src="http://t1.daumcdn.net/localimg/localimages/07/2013/map/test/ico_street.gif"></span><a href="http://map.daum.net/?from=roughmap&amp;eName=%EC%A0%9C%EC%A3%BC%ED%8A%B9%EB%B3%84%EC%9E%90%EC%B9%98%EB%8F%84%20%EC%84%9C%EA%B7%80%ED%8F%AC%EC%8B%9C%20%EB%8C%80%EC%A0%95%EC%9D%8D%20%EB%B3%B4%EC%84%B1%EB%A6%AC%201824&amp;eX=329869.0&amp;eY=-67401.0" target="_blank" style="text-decoration: none;color: #333;font:normal normal 400 12px 돋움, dotum, sans-serif;line-height:1;position:absolute;left:28px;top:311px">길찾기</a></div></div>
 
 
-
-**동일리 포구**
-
-
-- **찾는 방법**: 휴대폰 내비에서 **동일리포구** 나 **칠상사** 를 검색하셔서 오시면 됩니다.
-
-
-바다쪽 포구로 쭉 들어오세요.
-
-[![제주특별자치도 서귀포시 대정읍 동일리](https://ssl.map.naver.com/staticmap/image?version=1.1&crs=EPSG:4326&caller=mw_map&center=126.2402738,33.2257686&level=11&markers=type,default2,126.2402738,33.2257686&baselayer=default&w=565&h=308)](https://m.map.naver.com/search2/site.nhn?query=%EB%8F%99%EC%9D%BC%EB%A6%AC%ED%8F%AC%EA%B5%AC&sm=hty&code=17067976)
-
-
-![dol](https://s5.postimg.org/j1uczw853/Screen_Shot_2017-05-04_at_7.48.32_PM.png#center)
-
-![dol](https://s5.postimg.org/7qrpbj19z/Screen_Shot_2017-05-04_at_7.49.09_PM.png#center)
-
-![dol](https://s5.postimg.org/qkdi8izhz/Screen_Shot_2017-05-04_at_7.56.44_PM.png#center)
-
-
-### 신청 시 유의사항
-- 돌고래탐사는 기상과 해상의 사정등 천재지변에 의해 진행이 힘들경우가 많이 있습니다.
-이로 인해 취소될 경우는 3~1일전에 안내해드리며, 100%환불해 드립니다.
-- 돌고래 탐사의 최소 인원은 5명입니다. 최소 인원 미달로 인해 취소 시 3일전에 안내해드리며, 100%환불해 드립니다.
-- 돌고래탐사 유인선은 자체 보험이 되어있습니다. 단 당일 전체 여행에 대한 보험은 불포함 내용이오니 가입을 원할 시 개별 여행자 보험 가입 후 참가 부탁드립니다.
-- 일기예보 상 우천/강풍이 없더라도 현지 바다의 상황에 따라 일기예보와 달리 취소될 수 있습니다.
 
 ### 환불 규정
 [환불규정]
