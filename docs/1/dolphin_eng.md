@@ -156,7 +156,7 @@ Duration: About 1 hour
 Dongil-ri Port – The departure point may change depending on the sea and ship conditions.
 
 Dongil-ri Port (동일리 포구)
-### 집결지
+### Location
 
 [![제주특별자치도 서귀포시 대정읍 동일리](https://ssl.map.naver.com/staticmap/image?version=1.1&crs=EPSG:4326&caller=mw_map&center=126.2402738,33.2257686&level=11&markers=type,default2,126.2402738,33.2257686&baselayer=default&w=565&h=308)](https://m.map.naver.com/search2/site.nhn?query=%EB%8F%99%EC%9D%BC%EB%A6%AC%ED%8F%AC%EA%B5%AC&sm=hty&code=17067976)
 
