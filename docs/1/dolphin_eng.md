@@ -69,7 +69,7 @@ Thus, our wild dolphin discovery tour with native Jeju fishermen is not an expen
 
 ### Contact
 * Reservation First
-* +82-10-9663-0801, 050-5558-3838
+* +82-10-9697-0801, 050-5558-3838
 
 
 
