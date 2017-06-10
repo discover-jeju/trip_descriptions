@@ -1,5 +1,5 @@
 ## JEJU ECHO DRUM CIRCLE
-### Fly in JEJU
+
 
 A cheerful festival of exciting rhythms is held at one of Jeju’s forest on a vast grass field or your resort which you stay. Percussion master Hoon Kang gives a brief lesson too. This festival is recommended for teamwork building for workshop.
 
