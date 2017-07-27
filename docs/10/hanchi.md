@@ -17,6 +17,7 @@
 
 
 ![dol](https://s5.postimg.org/3mzlvpgon/image.jpg#center)
+
 위미항 산타크루즈호 선장님
 
 
@@ -28,6 +29,7 @@
 *설문대할망: 바다 속의 흙을 삽으로 떠서 제주도를 만들었다는 키가 크고 힘이 센 제주 여성신
 
 ![dol](https://s5.postimg.org/a38klsp87/image.jpg#center)
+
 19인승 산타크루즈호
 
 
@@ -165,4 +167,3 @@ de2eempx3/image.jpg#center)
 * 신청 마감 3일 ~ 2일 이전 통보 시: 결제 금액의 40% 배상 후 환불 
 * 신청 마감 1일 이전 통보 시: 결제 금액의 50% 배상 후 환불 
 * 신청 마감 시간 이후나 당일 불참 시에는 환불 불가
-
