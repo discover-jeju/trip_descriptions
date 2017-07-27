@@ -140,7 +140,7 @@
 제주특별자치도 서귀포시 남원읍 위미리 2937-2 
 
 <a href="http://map.daum.net/?urlX=420543&urlY=-61677&urlLevel=3&map_type=TYPE_MAP&map_hybrid=false&SHOWMARK=true" target="_blank"><span style="background:#000;position:absolute;width:557px;opacity:.7;filter:alpha(opacity=70);color:#fff;overflow:hidden;font:12px/1.5 Dotum, '돋움', sans-serif;text-decoration:none;padding:7px 0px 0px 10px; height: 24px;">지도를 클릭하시면 위치정보를 확인하실 수 있습니다.</span><img width="565" height="308" src="http://map2.daum.net/map/mapservice?MX=420543&MY=-61677&SCALE=2.5&IW=565&IH=308&COORDSTM=WCONGNAMUL" style="border:1px solid #ccc"></a>
-de2eempx3/image.jpg#center)
+
 
 
 ### 신청 시 유의사항
