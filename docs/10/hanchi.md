@@ -6,7 +6,7 @@
 
 **누구나, 언제나, 한 번쯤. 제주 밤바다 한치 배낚시**
 
-[![디스커버 제주 돌고래 탐사대 동영상](https://img.youtube.com/vi/70T_BBL1tH8/0.jpg)](https://www.youtube.com/watch?v=70T_BBL1tH8)
+[![디스커버 제주 돌고래 탐사대 동영상](https://img.youtube.com/vi/v6ivOUkm2Vs/0.jpg)](https://www.youtube.com/watch?v=v6ivOUkm2Vs)
 
 ### 어떤 프로그램인가요?
 
